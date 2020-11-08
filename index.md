@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Bismillahirrahmanirrahim...I'm glad you are here. Insya Allah I plan to talk about all about Quran
